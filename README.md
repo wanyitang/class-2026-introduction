@@ -1,4 +1,3 @@
 # class-2026-introduction
 Introduce yourself!  
-hello.
-
+i love cheesecake

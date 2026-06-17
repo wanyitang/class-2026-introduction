@@ -1,7 +1,9 @@
 # class-2026-introduction
-Im marcelo perez guzman from lawrence, massachusetts
-im T Smith a junior mathematics major with statistical concentration and mass communications minor
-Introduce yourself!  
+## Introduce yourself!  
+
+Im marcelo perez guzman from lawrence, massachusetts  
+im T Smith a junior mathematics major with statistical concentration and mass communications minor  
+
 
 My name is Briza Tayagua-Delgado!
 i love cheesecake

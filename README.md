@@ -5,14 +5,14 @@ Im marcelo perez guzman from lawrence, massachusetts
 im T Smith a junior mathematics major with statistical concentration and mass communications minor  
 
 
-My name is Briza Tayagua-Delgado!
-i love cheesecake
-My name is Alan!
-Liliana!  
-TEST
-hi i'm Jorden 
+My name is Briza Tayagua-Delgado!  
+i love cheesecake  
+My name is Alan!  
+Liliana!    
 
-hello, I'm sydney
+hi i'm Jorden   
 
-This is ameya 
-This is Cadence! 
+hello, I'm sydney  
+
+This is ameya   
+This is Cadence!   
